@@ -1,7 +1,7 @@
-Pexels Videos [Pixabay Videos](https://pixabay.com/videos/)
+Pexels Videos
  — очень много бесплатных видео, есть и абстрактные фоны.
 
-Pixabay Videos
+Pixabay Videos [Pixabay Videos](https://pixabay.com/videos/)
  — бесплатные футажи, лупы, анимации, фоны.
 
 Videezy
